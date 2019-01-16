@@ -6,4 +6,3 @@
 ##### hallo
 **die Katze**
 [еда](https://vk.com/photo-73092861_456241779)
-![снова еда](https://vk.com/photo-73092861_456241779)
